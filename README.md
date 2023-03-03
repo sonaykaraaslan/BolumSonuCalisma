@@ -1,0 +1,2 @@
+# BolumSonuCalisma
+kısa sayfalar
